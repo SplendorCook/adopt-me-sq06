@@ -1,4 +1,4 @@
-#  
+#  adopt me hidden Scripts is the best adopt me Script, featuring esp and no cooldown. Safe and powerful for all your needs.
 
 
 
